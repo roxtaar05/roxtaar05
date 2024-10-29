@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on no idea
-- 📫 How to reach me ig/ roxtaar05
+- 📫 How to reach me ig/ roxtaar_05
 - 😄 Pronouns: roxtaar
 - ⚡ Fun fact: im funny
 
